@@ -6,4 +6,3 @@
 - 📫 How to reach me: [My LinkedIn](https://www.linkedin.com/in/ashniahlawat)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like painting and photography 
--->
